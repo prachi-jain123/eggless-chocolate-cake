@@ -1,0 +1,2 @@
+the ingredients needed for this recipe are
+ flour(2 cup), butter(1/2 cup), powdered sugar(1/2 cup), condensed milk(1/2 cup), baking powder(1.5 tsp), baking soda(1/2 tsp), cocoa powder (1/2 cup) and milk(1 cup).
